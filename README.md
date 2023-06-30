@@ -1,0 +1,1 @@
+# Wwwprtclpaginas--QRRevision-Tecnica-aspx-patenteHTFK12
